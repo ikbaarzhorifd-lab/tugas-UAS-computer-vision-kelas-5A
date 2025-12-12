@@ -5,6 +5,20 @@ Dwi Ardhianto
 Rakha Hidayatul Ramadhan
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <img width="1919" height="1034" alt="image" src="https://github.com/user-attachments/assets/c8366956-74de-4c29-9134-4d3c36dd65d8" />
 
 <img width="1919" height="687" alt="image" src="https://github.com/user-attachments/assets/93f817a7-dc5d-4c54-9945-348328719d21" />
