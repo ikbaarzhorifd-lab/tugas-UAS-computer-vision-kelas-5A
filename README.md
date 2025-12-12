@@ -2,6 +2,8 @@ nama kelompok:
 
 Ikbaar Zhorif D
 
+Ahmad faiz
+
 Ahmad Putra Ramadani
 
 Dwi Ardhianto
